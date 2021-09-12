@@ -1,0 +1,2 @@
+# viruslinux
+Salah gunakan mati
